@@ -1,0 +1,1 @@
+Hola, mi nombre es Raquel Salazar, soy estudiante del primer semestre de ingenieria de software, mi objetivo al crear esta cuenta es para poder seguir aprendiendo aun mas, estoy interesada en poder aprender programacion, y muchas otras cosas mas sobre mi carrera.
